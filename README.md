@@ -1,14 +1,12 @@
-![img](https://web.archive.org/web/20091025235241/http://geocities.com/TimesSquare/Fortress/6045/npbem/fire.gif)
-# codering nd brane genus 
-![img](https://web.archive.org/web/20090820075747/http://geocities.com/shanelaffond13/gamerzfirelogo.gif) 
+![img](https://7te.github.io/assets/img/fire.gif)
+# Do U Realize 
+![img](https://7te.github.io/assets/img/gifgamerzfirelogo.gif) 
 
 ![me](https://cdn.discordapp.com/attachments/519420693956395008/670404598468706304/55db549e1d00002f00145aca.png)
 
-[OFFICIAL THEMESONG](https://www.youtube.com/watch?v=mwwKgjvKde8)
-
 ## muscular inteligent wealthy ...........,
-![img](https://web.archive.org/web/20090829104041/http://www.geocities.com/wehatehippies/Set_Iraq_on_Fire.gif)
-![img](https://web.archive.org/web/20091027002235/http://mx.geocities.com/medaloffire/imagenes/gif-imprenta.gif)
+![img](https://7te.github.io/assets/img/Set_Iraq_on_Fire.gif)
+![img](https://7te.github.io/assets/img/gif-imprenta.gif)
 
-## u cuould never....//.,./,/
-![img](https://web.archive.org/web/20091025235241/http://geocities.com/TimesSquare/Fortress/6045/npbem/fire.gif)
+## yea
+![img](https://7te.github.io/assets/img/fire.gif)
